@@ -5,6 +5,7 @@ meu nome é Angelina🤓
 
 -Estou me desenvolvendo na area de tecnologia🤖
 
--Estou aqui para aprender coisas novas 🙉 
+-Estou aqui para aprender coisas novas 🙉
 
+![](https://tenor.com/btWXp.gif)
   
