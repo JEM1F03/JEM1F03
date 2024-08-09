@@ -6,6 +6,4 @@ meu nome é Angelina🤓
 -Estou me desenvolvendo na area de tecnologia🤖
 
 -Estou aqui para aprender coisas novas 🙉
-
-![descrição do gif](https://tenor.com/btWXp.gif)
-  
+![descrição do GIF](https://media1.tenor.com/m/soKwd8Bn0-sAAAAC/the-spectacular-spider-man-spectacular-spider-man.gif)
