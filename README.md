@@ -7,5 +7,5 @@ meu nome é Angelina🤓
 
 -Estou aqui para aprender coisas novas 🙉
 
-! [descrição do gif] (https://tenor.com/btWXp.gif)
+! [descrição do gif](https://tenor.com/btWXp.gif)
   
