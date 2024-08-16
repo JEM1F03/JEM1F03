@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 🦇🦇
+### bem vindo ao meu perfil🦇🦇
 meu nome é Angelina
 
 -Estudo na plataforma do alura 
