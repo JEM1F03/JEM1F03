@@ -1,5 +1,5 @@
 ### bem vindo ao meu perfil🦇🦇
-meu nome é Angelina
+meu nome é Angelina⭐
 
 -Estudo na plataforma do alura 
 
